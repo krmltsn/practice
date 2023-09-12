@@ -1,1 +1,1 @@
-Hexlet FUCK YOU!!!
+No code No pain
